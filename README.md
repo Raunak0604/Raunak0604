@@ -27,7 +27,7 @@
 <br />
 <br />
 
-![](https://media-exp1.licdn.com/dms/image/C4E16AQH-JUtkFZsUXw/profile-displaybackgroundimage-shrink_350_1400/0/1646767832116?e=1652313600&v=beta&t=Dq-JJ_ESlMSE1eRWOWiobk5Z4ZIy7vXQQjw4ytZgxf4)
 
+![image](https://user-images.githubusercontent.com/101201579/173216957-0a0d97af-cd07-4d0b-94e1-dd0df6b11c35.png)
 
 
